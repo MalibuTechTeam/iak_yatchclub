@@ -10,6 +10,6 @@
 - Location: -786.5088, -1349.0610, 10.8560
 
 ## DMCA Protection Certificate
-![image](https://i.imgur.com/ZKgaF7B.png)
+![image](https://cdn.discordapp.com/attachments/1045063739738705940/1045110735304413224/image.png)
 
 ##### Copyright © 2022 Malibú Tech. All rights reserved.
